@@ -17,8 +17,8 @@
 - Building a professional network and preparing for internships
 
 ## 📫 How to Reach Me
-- [LinkedIn](https://www.linkedin.com/in/santosh-k-kammar-skk162005?utm_source=share_via&utm_content=profile&utm_medium=member_android)
-- Email: skkammar1652@email.com
+- [LinkedIn](https://www.linkedin.com/in/santosh-k-kammar-skk162005)
+- Email: santoshkkammar16@gmail.com
 
 ## ⚡ Fun Facts
 - I love learning new things and sharing knowledge!
@@ -26,5 +26,4 @@
 - Always ready to experience new things
 
 ---
-
 _Thanks for visiting my profile!_
